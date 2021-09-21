@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cracklamoulax
+- 👀 I’m interested in les meufs
+- 🌱 I’m currently learning le python
+- 📫 How to reach me https://discord.gg/udjfHyYq9T
